@@ -5,6 +5,6 @@ Wonderpets SM:SAPURNA, Asher D.
 Magic 5 SM: Total, Jahreb A.
 
 
-Katseye SM:
+Katseye SM: Acorda, Zyrian Ian C.
 
 Sir Jerry's his feature
