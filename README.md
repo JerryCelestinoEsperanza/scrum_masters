@@ -1,7 +1,6 @@
 # scrum_masters
 Scrum Master Team founded by Sir Jerry
-Wonderpets SM: 
-
+Wonderpets SM: SAPURNA, Asher
 Magic 5 SM:
 
 Katseye SM:
