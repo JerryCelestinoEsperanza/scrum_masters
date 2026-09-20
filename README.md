@@ -1,6 +1,6 @@
 # scrum_masters
 Scrum Master Team founded by Sir Jerry
-Wonderpets SM:
+Wonderpets SM:SAPURNA, Asher D.
 
 Magic 5 SM: Total, Jahreb A.
 
